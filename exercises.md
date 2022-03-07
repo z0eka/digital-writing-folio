@@ -32,3 +32,12 @@ I think when I write by hand the pace suits my brain better, and I find it easie
 - Accessibility
 - More avenues for second person
 - More expansive storylines
+
+
+## Questions for [GORGE](https://nickm.com/taroko_gorge/gorge/)
+### What aspects of the remix are the same?
+It follows the same format, it follows a body
+### What aspects of the remix are different?
+It's about bodies and foods whereas the OG was about bodies and geology
+### Is the remix successful (why or why not)?
+I suppose so, if you consider the OC successful. I'm perplexed by it though, maybe because I missed the first week. 
