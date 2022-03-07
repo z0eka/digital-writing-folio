@@ -25,6 +25,10 @@ I think when I write by hand the pace suits my brain better, and I find it easie
 - It needs a screen, print lit can be on a screen but doesn't have to. 
 - There is writing that is content and there is writing that's scaffolding. 
 - Oh wow, everyone else put actual definitions together.
+- There's no money in it, like, less than print lit!
 ### What are some of the qualities of electronic literature?
 - Interactivity
 - Heaps more variations in the text/experience
+- Accessibility
+- More avenues for second person
+- More expansive storylines
